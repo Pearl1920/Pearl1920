@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Pearl
 - 👀 I’m interested in software development
 - 🌱 I’m currently learning programming
-- 📫 How to reach me: ppearlz941@gmail.com
+- 📫 How to reach me: grace.okoro230591303@st.lasu.edu.ng
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I love reading novels
 
